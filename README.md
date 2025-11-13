@@ -18,3 +18,5 @@
                               [**rntry**](https://rentry.co/bouquetofbrambles)         [**ata**](https://mistyquigley.atabook.org/)
 
 >                                          _ripley 8's #1 husband_
+
+                                     _rentry is a wip !!!_
