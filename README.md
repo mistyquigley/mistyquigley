@@ -13,8 +13,8 @@
 ⟢           les mers se brisent dans tes bras .  ◌
 </p>
 
-                             **ody**  `or`  _harker_
+                       **ody**  `or`  _harker_
                       
-                              [**rntry**](https://rentry.co/bouquetofbrambles)         [**ata**](https://mistyquigley.atabook.org/)
+                         [**rntry**](https://rentry.co/bouquetofbrambles)          [**ata**](https://mistyquigley.atabook.org/)
 
->                                          _ripley 8 ' s #1 husband_
+>                         _ripley 8 ' s #1 husband_
