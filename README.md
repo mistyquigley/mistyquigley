@@ -7,7 +7,7 @@
 ⟢           les fleurs meurent sous ton regard ,   ◌
            
 <p align="center">
-<img width="511" height="536" alt="Untitled87_20251030182643" src="https://github.com/user-attachments/assets/e26960d3-7f9e-4592-a0db-8b7dc917e64f" />   
+<img width="511" height="336" alt="Untitled87_20251030182643" src="https://github.com/user-attachments/assets/e26960d3-7f9e-4592-a0db-8b7dc917e64f" />   
 <p align="right">
 ⟢           les mers se brisent dans tes bras .  ◌
 </p>
